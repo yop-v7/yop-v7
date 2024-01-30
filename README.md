@@ -1,5 +1,5 @@
 - 👋 Hi, I’m V
-- 👀 I like helping others prosper
+- 👀 I like helping people - whether you're apart of that is your choice
 - 🌱 I’m currently learning all there is to know about the f*cking universe
 - 📫 How to reach me: U can't - I'll find you
 
